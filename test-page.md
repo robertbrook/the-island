@@ -2,7 +2,13 @@
 
 Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
 
+![Special Offer](//545.jpg)
+
+---
+
 __a test for the github browser view__
+
+[here](http://www.apple.com "Apple") is a link
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nulla ullamcorper scelerisque metus eget laoreet. Curabitur mattis augue sit amet adipiscing sodales. Etiam commodo quam nec feugiat sagittis. Suspendisse a blandit risus, nec aliquam urna. Mauris luctus fringilla dolor, eu eleifend nunc ultricies in. Mauris augue nunc, vehicula in rutrum a, iaculis et diam. Etiam blandit dictum nisl ac porttitor. Morbi laoreet dignissim ultricies. Ut luctus a justo eu mattis. Etiam aliquet commodo mi eu congue. Sed sit amet commodo felis, in tempus libero. In viverra magna velit, sed accumsan elit suscipit vel. Integer in feugiat leo.
 
