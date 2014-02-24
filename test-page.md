@@ -4,6 +4,8 @@ Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the 
 
 ![Special Offer](//545.jpg)
 
+![Demo](//545.jpg)
+
 ---
 
 __a test for the github browser view__
