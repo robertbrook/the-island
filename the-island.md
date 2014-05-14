@@ -251,8 +251,3 @@ Again he made the motion with his out-stretched hands. Before he could sink back
 
 I made my thanks and left the place: at the doorway I turned to see him, entirely absorbed by his papers. Whatever kept him here kept him very strongly here. And for someone so eager to take the way I was to take, he seemed quite content to let me go ahead and stay himself. I had come in to him alone and left alone. No others waited outside and none of those who passed by looked in on him.
 
-8250
-
-7700
-
-
