@@ -169,11 +169,11 @@ She smiled again and filled the bowl. It was a sort of soup, with large mushroom
 
 "Is there a larger town nearby? I am lost. I need to find ... a way ... I was on a boat. Is there a harbour?"
 
-Most of them looked blankly back, still smiling. One woman who sat closer to the fire looked up and laughed. 
+Most of them looked blankly back, still smiling. One woman who sat closer to the fire looked up and laughed. Beside her sat a man with two bags by his legs, as though he were just about to take them up and leave.
 
 "Is there not a harbour? For the boats?"
 
-This seemed to mean nothing to them. Surely the island couldn't stand on it's own, without some regular traffic. What about fishing? But, then I remembered - I had seem no other boats since I last saw mine. I had seen no-one fishing, neither had I seen any being eaten. Here, only a day's walk from the sea, they ate mushrooms - and some other stuff, which although I didn't know I was sure could not be fish. A town, then? There must be a bigger place on the island, where more people lived?
+The man by the fire turned to face me. This seemed to mean nothing to them. Surely the island couldn't stand on it's own, without some regular traffic? What about fishing? But, then I remembered - I had seem no other boats since I last saw mine. I had seen no-one fishing, neither had I seen any being eaten. Here, only a day's walk from the sea, they ate mushrooms - and some other stuff, which although I didn't know I was sure could not be fish. A town, then? There must be a bigger place on the island, where more people lived?
 
 "Do you want to go to the market? We will take you in the morning."
 
@@ -206,6 +206,8 @@ I tried to see what might be for sale, but had no luck. Here the great mix of pe
 Still none of them had any word for me that was disturbing. Only confusing, but that could hardly be blamed on them. I was the stranger in their midst and it was surely up to me to make my way. And hadn't their fellows helped me already, more than I'd expected any help to come? I looked about and smiled hopefully. If they were so helpful, I had nothing to worry myself with. 
 
 The short man spat and whispered. He carried two black leather pouches, in which there were great bunches of pink flowers. He leant towards me as he passed and whispered again. Did he mean me to hear? Now I looked again and saw that none of those I'd travelled with on the cart could be seen. I felt for a moment almost afraid. 
+
+I tried to catch a word here and there, but it was the great mixture of languages that confused me - and that they seemed to be satisfied with only a word or two between each of them. Then one would laugh, or smile in agreement and that would be an end of it. Try as I might, I saw no money change hands. 
 
 Then I felt absolutely foolish. What had I to fear? All I had to do was find some proper place to explain myself - to explain what had happened to me - and surely everything would be put to rights. I began to come away from the crowd and wondered if there might be some official place I could see around the square.
 
@@ -245,9 +247,23 @@ Perhaps the money sent had not made up for the work with the papers. Perhaps the
 
 He said the island was small, that I had already come almost half-way across it since I had arrived. This part of the island was his home. The people in the city were different, but also richer. He wished to be rich. But these people in the market town seemed not to satisfy him. None of them were rich. 
 
-He spoke of the city in a tone of admiration: the buildings, the streets, the people - the best of the island, by far. I was lucky to have an opportunity to go. He would have wanted to come with me, but the papers, you see?
+He spoke of the city in a tone of admiration: the buildings, the streets, the people - the best of the island, by far. Not like here, not like the market, where only country-people came. I was lucky to have an opportunity to go. He would have wanted to come with me, but the papers, you see?
 
 Again he made the motion with his out-stretched hands. Before he could sink back into them, I asked where I should go next. He said the way was easy - easier by far than the way I had come. Proper road-way ahead, no cart-tracks or mossy paths. He envied me.
 
-I made my thanks and left the place: at the doorway I turned to see him, entirely absorbed by his papers. Whatever kept him here kept him very strongly here. And for someone so eager to take the way I was to take, he seemed quite content to let me go ahead and stay himself. I had come in to him alone and left alone. No others waited outside and none of those who passed by looked in on him.
+I made my thanks and left the place: at the doorway I turned to see him, entirely absorbed by his papers. Whatever kept him here kept him very strongly here. And for someone so eager to take the way I was to take, he seemed quite content to let me go ahead and stay himself. I had come in to him alone and left alone. No others waited outside and none of those who passed by looked in on him. He sat quietly at his table, his eyes cast down. He seemed to be resting.
+
+Outside, some half of the people had gone off. Back to their farms, or fields, or whatever place they had come from. The sun was dropping and I knew I had to find another place to keep me overnight. In all the square there seemed nothing like the place I had slept before. Where might I look? 
+
+Before the sun set, I knew I had to get one of them to help me, or at least tell me where I might be helped. Two women passed slowly before me, carrying between them a large glass bottle in a wicker container, which offered to handles to carry it with. Behind them, a man in a three-quarters coat, with what looked like an old-fashioned doctor's bag, very scuffed and marked.
+
+As I came closer to him, I wondered if I could even make myself understood. I asked if there was some place to stay until the morning, which he took some time in thinking about. At last he did not speak his reply, but pointed to what looked like a large alley-way that opened into the square, opposite the open field.
+
+Before I could ask any more, he nodded quickly and left. It was not an alley, but the doorway to what seemed to be a very small factory, or a storage-place of some sort. The doorway was quite wide, wide enough for at least a cart to come into for loading. 
+
+Around the walls were stacked several of the glass bottles in wicker baskets. There was a low lamp by the doors. I saw three or four people already unpacking their bags in the darkest part of the place. Why did they want to go there? Why not stay by the light?
+
+I had expected the usual round of greetings, but this night was not for that, it seemed. Not one of them offered any more than a glance to me. A couple shared a loaf of bread, but it wasn't passed round. I though I had better find my place to sleep and make the best of a breakfast I could in the morning.
+
+I put myself down in the corner nearer the lamp and pulled a large sheet of sacking over me. I was cold and hungry, not not enough to keep me from sleep. Within only a few minutes, I had left the quite world of the town and fallen into the world of dreams again. Once more, I dreamed of home - or, what came after home: the beginning of my journey.
 
