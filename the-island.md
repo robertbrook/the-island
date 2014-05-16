@@ -223,21 +223,21 @@ As I walked on, I thought of it, then realised it was no smile - rather a sort o
 
 The ground floor of the place was taken up by a hall, to which there was only one way in and out. The door was half-open and I thought myself to be alone in there until I heard a movement in the dim end of the room, away from the door. 
 
-A large trestle-table was set up, at which a man sat, somewhat slumped across the boards. Before him was a pile of manuscript paper and three or four pens - some open, some closed. One of the manuscripts had been marked with ink. His hands were marked as well.
+A large trestle-table was set up, at which a man sat, somewhat slumped across the boards. Before him was a pile of manuscript paper and three or four pens - some open, some closed. During our short interview he did not use any of them, nor seem to wish to pick them up. One of the manuscripts had been marked with ink. His hands were marked as well.
 
-He seemed a little dis-interested in him work, if this was his work. Perhaps this was some civic duty to perform and he did it only unwillingly. However it was, he showed no interest in my coming into the room, only sat looking at his pile of papers. Even I f he could not help, I assumed he might know which direction I should take next.
+He seemed a little dis-interested in him work, if this was his work. Perhaps this was some civic duty to perform and he did it only unwillingly. However it was, he showed no interest in my coming into the room, only sat looking at his pile of papers. Even If he could not help, I assumed he might know which direction I should take next.
 
-There being no bench or chair on my side of the table, I stood in front and waited for him a while. I seemed to interest him even less than his papers. I drew close up to the edge of the table until he could no longer ignore me.
+There being no bench or chair on my side of the table, I stood in front and waited for him a while. I seemed to interest him even less than his papers. I drew close up to the edge of the table until he could no longer ignore me. He wore a dark coat, or jacket. A pair of gloves lay on the table in front of him. There was little else in the room.
 
 He sat in silence as I tried to explain how I had come to arrive there. He seemed entirely unmoved by my situation, but at last gave a small sigh and moved about in his chair. He passed his eye over the closest set of papers.
 
-"You see, if you don't have your papers, we can't really help."
+"Well. You see, if you don't have your papers, we can't really help."
 
-I stood, still. I wondered if I was to give any answer to this.
+I stood, still. I wondered if I was to give any answer to this. It didn't seem like a challenge, or an accusation - just a plain statement of fact. He moved in his chair again, as though irritated by something. He moved to speak, thought better of it, then sat back. After a little while of reflection, he spoke quietly.
 
-"You could go and get your papers, I suppose."
+"You could go and get them yourself, I suppose."
 
-I told him that I had none to get, which seemed only to make him mildly irritated. He settled on the idea that I should carry on through the town, onto the road to the city. There was a city, then - and it was at the far shore of the island. He couldn't tell me much about the place, since he had never been, but he knew it was big - and money was sent to him from there. Money - and these papers. He spread out his hands as though to offer evidence.
+I told him that I had none to get, which seemed only to make him mildly irritated again. He settled on the idea that I should carry on through the town, onto the road to the city. There was a city, then - and it was at the far shore of the island. He couldn't tell me much about the place, since he had never been, but he knew it was big - and money was sent to him from there. Money - and these papers. He spread out his hands as though to offer evidence.
 
 "There's nothing else to be done."
 
@@ -245,7 +245,7 @@ Here he looked up and smiled, like the others. But where they had seemed quite o
 
 Perhaps the money sent had not made up for the work with the papers. Perhaps the town tolerated him and his papers, but little more than that. I was, after all, his only visitor. I decided to take advantage of the quiet and asked him a little more about the island - and about the rest of my journey.
 
-He said the island was small, that I had already come almost half-way across it since I had arrived. This part of the island was his home. The people in the city were different, but also richer. He wished to be rich. But these people in the market town seemed not to satisfy him. None of them were rich. 
+He said the island was small, that I had already come almost half-way across it since I had arrived. This part of the island was his home. The people in the city were different, but also richer. He wished to be rich. But these people in the market town seemed not to satisfy him. None of them were rich. Even if they had been, how would they have shown it - how would I have told a rich man from a poor one, there?
 
 He spoke of the city in a tone of admiration: the buildings, the streets, the people - the best of the island, by far. Not like here, not like the market, where only country-people came. I was lucky to have an opportunity to go. He would have wanted to come with me, but the papers, you see?
 
@@ -271,10 +271,14 @@ I was shaken awake, by someone I couldn't quite see. By the time I was up, I was
 
 The way up and away from the square led to an open road, well-laid and lined with planted trees. There was a place for carts, but none for me to walk. My working-boots sounded on the road and I began to feel out of my place. 
 
-I began to feel hot. The road led straight up a rising hill. Soon a small rise showed I was to cross a bridge, but as I walked closer, I saw that the road stopped before where the bridge should have been. 
+I began to feel hot, though the sun was not much higher than it had been when I left the square. The road led straight up a rising hill. Soon a small rise showed I was to cross a bridge, but as I walked closer, I saw that the road stopped before where the bridge should have been. 
 
-I looked down to see not a river, but only a stream. It looked almost un-natural, running is a straight line which seemed to pass into the distance. No part of the stream was higher than another. The water ran neither in one direction or the other, but seemed to boil. The acidic smell came again. 
+I looked down to see not a river, but only a stream. It looked quite un-natural, running in a straight line which seemed to pass into the distance. No part of the stream was higher than another. The water ran neither in one direction or the other, but seemed to boil. The acidic smell came again. 
 
-The strangest thing about the stream was it's colour - where I had though the sun had made it golden, I stepped down to find it a glistening, sickly yellow. As far as I could see, it spread like a line drawn directly through the middle of the island. 
+The strangest thing about the stream was it's colour - where I had though the sun had made it golden, I stepped down to find it a glistening, flat and sickly yellow. As far as I could see, it spread like a line drawn directly through the middle of the island. I had to cross the water - if it was even water - if I was ever to leave the place. 
 
-8800
+The smell rose beneath me. I tried to step over it all at once, but my slower foot dragged and slipped back into the stinking yellow, which hissed and bit at my boot. I fell forward and grabbed at the far bank, which was stained and soggy. I sat up, suddenly exhausted. 
+
+I looked back toward the far side of the stream, which seemed at once very close and far away. A thin film hung in the air. I knew I couldn't stay there and must go on, if only to get beyond the smell of the yellow ditch. Slowly I pulled myself away and up the bank, back to where the road started again.
+
+The smell faded only a little, but anything was better than staying by the bank. Tired, I rejoined the road and stumbled slowly on.
