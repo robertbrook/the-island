@@ -267,3 +267,14 @@ I had expected the usual round of greetings, but this night was not for that, it
 
 I put myself down in the corner nearer the lamp and pulled a large sheet of sacking over me. I was cold and hungry, not not enough to keep me from sleep. Within only a few minutes, I had left the quite world of the town and fallen into the world of dreams again. Once more, I dreamed of home - or, what came after home: the beginning of my journey.
 
+I was shaken awake, by someone I couldn't quite see. By the time I was up, I was the last in the place. There was a smell, one I'd not noticed before. Something acidic. Outside, the square was empty. I looked back towards the way I'd come, wondering for a moment if I should go back.
+
+The way up and away from the square led to an open road, well-laid and lined with planted trees. There was a place for carts, but none for me to walk. My working-boots sounded on the road and I began to feel out of my place. 
+
+I began to feel hot. The road led straight up a rising hill. Soon a small rise showed I was to cross a bridge, but as I walked closer, I saw that the road stopped before where the bridge should have been. 
+
+I looked down to see not a river, but only a stream. It looked almost un-natural, running is a straight line which seemed to pass into the distance. No part of the stream was higher than another. The water ran neither in one direction or the other, but seemed to boil. The acidic smell came again. 
+
+The strangest thing about the stream was it's colour - where I had though the sun had made it golden, I stepped down to find it a glistening, sickly yellow. As far as I could see, it spread like a line drawn directly through the middle of the island. 
+
+8800
