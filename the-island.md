@@ -281,4 +281,8 @@ The smell rose beneath me. I tried to step over it all at once, but my slower fo
 
 I looked back toward the far side of the stream, which seemed at once very close and far away. A thin film hung in the air. I knew I couldn't stay there and must go on, if only to get beyond the smell of the yellow ditch. Slowly I pulled myself away and up the bank, back to where the road started again.
 
-The smell faded only a little, but anything was better than staying by the bank. Tired, I rejoined the road and stumbled slowly on.
+The smell faded only a little, but anything was better than staying by the bank. Tired, I rejoined the road and stumbled slowly on. I realised why I was the only person on the road: there was no-where to go. Only one way was left for me, onwards to the city, to get my papers and to leave the island.
+
+The road on this side was even better than before. Surely this was not a road for carts, but for motors. The surface looked, again, newly-laid. The road passed straight ahead, starting to cut an embankment into the thickly-wooded hillside. The ground rose and fell, but the road simply sliced through.
+
+9350
