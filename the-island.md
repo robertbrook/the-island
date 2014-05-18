@@ -285,4 +285,32 @@ The smell faded only a little, but anything was better than staying by the bank.
 
 The road on this side was even better than before. Surely this was not a road for carts, but for motors. The surface looked, again, newly-laid. The road passed straight ahead, starting to cut an embankment into the thickly-wooded hillside. The ground rose and fell, but the road simply sliced through.
 
-9350
+There was no place on either side of the road to walk - and I continued in the rising heat to travel straight down the middle of the road, expecting anything that came along to see me before it was too late. The trees began to close in, so that the road was half in dark shadow and half in the blank of the sun.
+
+I tried for a while to keep in the shadow, but found it impossible. The trees looked even more alien than those I had seem before. Some had a large fruit growing on them, which hung down like an aubergine, but the colour a sort of light green. I dare not try them, for fear they might be poison - or at least, un-ripe.
+
+The hills around became more irregular. The road carried on. Ahead I though I heard voices, or perhaps it might have been an animal. There was a disturbance in the top of the trees and several large birds took off into the sky, heading above my head and back towards the yellow ditch.
+
+I cannot tell how long I had been walking, expect to say that it must have by now been some time in the afternoon. The trees closed in still further, almost covering the road and giving some relief from the late sun. 
+
+I came suddenly to a crossroads. Looking up the slight rise, I saw that the road ahead was crossed by a thin metal barrier, behind which stood three men in uniform. One appeared to carry a gun, but I could hardly see that clearly until I came closer. 
+
+I called out a hello. They saw me, but gave no answer. Closer still - and I could see that the two unarmed stood back, leaving the barrier to the one with a weapon. I must have looked a terrible sight, tired and dirty, but they looked more fearful than disgusted at me.
+
+I said my hello again, but got no response, until I reached a few steps from the barrier. He raised his gun and spoke to his fellows to move up by him, as though I was some sort of threat. I could hardly have offered much resistance to anything they chose to do. I certainly made no threat to them.
+
+But still they looked warily at me, not speaking except to each other and then only in a mutter I could not make out. I stopped and tried to explain: my journey from the sea right up to coming to the city. I was looking for my papers, so I could leave the island, so i could go home.
+
+The one with the gun asked: "Where are your papers?" - and I explained again, that I had none. They spoke to each other a little longer, then I was waved forward. "You must have your papers."
+
+At last the thin metal barrier was raised - and I was let through. Here there was a small armoured car, with no turret but room enough in the back for at least six more of the guards. Was I in some occupied zone? Perhaps I shouldn't be here at all. Perhaps I had come the wrong way.
+
+But after some long questioning, I realised that there was only one way towards the city - and I was on it. They looked at me with some suspicion, until one suggested that I be given a pass. I was taken over to the armoured car and stood by the back, while one of them crouched over a stack of cards with a pen. Even as I watched, the gun was trained on me.
+
+The pass was an oblong of rough card, with paper laid on it. A printed form with spaces to fill was attached. The print was very faint and marked all over with tears, smudges and two large red stamps. I looked at it doubtfully but they assured me that it was the only way I might pass on further.
+
+I asked why they were there, but gone no answer I could understand. I asked if they were part of an army, but they looked puzzled at the idea. I asked why one of them had a gun - and he laughed.
+
+I wondered where I might get some food; they sent me on my way, saying that I might find something nearer the city. None of them could tell me how much further I had to walk, only that they had been driven there from a nearby barracks.
+
+10450
