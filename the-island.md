@@ -1,28 +1,28 @@
 We sat on the boat, this moored safely by the edge of the great estuary, as the tide ran out beneath us. Thinking of this, of what happened, feels very difficult to me. It is difficult. Because of what happened, eventually, after all of that. And because how it happened must have been my fault - or indirectly mine, for missing some thing I should have done, or not done, or said, or not.
 
-Sometimes I think I am remembering, sometimes only dreaming. Very little of it is clear - and those things which are clear I do not know if I have remembered myself, or been told.
+Sometimes I think I am remembering, sometimes only dreaming. Very little of it is clear - and those things which are clear I do not know if I have remembered myself, or been told. Sometimes it it difficult to tell the different between what I dreamed and what I remembered; the dreams being so alike to what was real - and the reality becoming gradually more like a dream.
 
 Back then seems very far away, but of course very near. I had been travelling on a boat, I think working, I think, because, there were not so many of us on the boat. I can't have been a passenger, since I worked, or did some tasks on the boat. It was a little too small for such a voyage, I think. 
 
 We had been travelling for weeks. The boat was small and the journey took so long. I don't mean it was dangerous, only that a bigger boat should have managed the journey in much shorter a time. At least, that's how it seemed to me. The days passed, the weeks passed. And as they passed, every day began to be much like the one before.
 
-After we had left the port, the weather grew warmer. I expected that we should at last have hot days, but they never came. No day was any warmer than the last and no night any cooler. The same sun rose and set, the same moon stuck to the sky at night.
+After we had left the port, the weather grew warmer. I expected that we should at last have hot days, but they never came. No day was any warmer than the last and no night any cooler. The same sun rose and set, the same moon stuck to the sky at night. I thought I would be able to tell the passing of time by the moon, but I could never quite work out how.
 
 There we others with me, of course. On the boat. There was a woman, I remember, who seemed a little like me. There was a man, who didn't seem anything like me at all. The woman did work as I did. I'm not sure what the man did. There were others there, but I can't remember them. I think they worked somewhere else. Not on deck.
 
 The weather became almost un-naturally calm. The days became long. The sun shone long and evenly down on us, as though on some timetable set by an unimaginative god. Time passed, slowly, eventually. We got bored. I got very bored. My tasks on the boat were so simple as to be completely un-diverting. Above us the sky stayed as a uniform blue. Few clouds crossed it. 
 
-Soon I was on my own almost every day. The woman and the man went off - and I only saw them one at once, passing into a doorway, or climbing the ladder. I never asked their names, even after so long. They never asked mine, either.
+Soon I was on my own almost every day. The woman and the man went off - and I only saw them one at once, passing into a doorway, or climbing the ladder. I never asked their names, even after so long. They never asked mine, either. I thought that they too must have been working their passage - and that we must have been travelling to the same place.
 
-The woman and the man at first worked together, then apart. They work work-clothes, like I did. Their clothes became worn and patched, as mine did. Looking at the woman seemed to be looking into a mirror. The man did not look at me. She spoke, he did not.
+The woman and the man at first worked together, then apart. They work work-clothes, like I did. Their clothes became worn and patched, as mine did. Looking at the woman seemed to be looking into a mirror. The man did not look at me. She spoke, he did not. When I spoke, my voice was like hers.
 
 Surely the boat could take us there faster? It seemed ridiculous to go on such a long voyage and to travel so slowly. We worked together at first, then more often alone. I had begun the voyage knowing very little of what I was to do and was concerned I couldn't do my job to the satisfaction of others, but the days passed and I soon realised that I could have done everything with only the simplest instruction - if any at all.
 
-The woman and the man worked on deck, near to me, then further off. Sometimes I could hear them. Sometimes, at first, I though the woman spoke, but it was only the sound of her working.
+The woman and the man worked on deck, near to me, then further off. Sometimes I could hear them. Sometimes, at first, I though the woman spoke, but it was only the sound of her working. We all had our tasks to do, though we were not closely watched, only assumed to be working most of the day. It was not hard work.
 
 Perhaps I became complacent, as well as bored. The plain food, the low thrumming noise of the engine, our slow progress and the unchanging weather all combined together. On some days it seemed almost like a dream. The clouds, the sky, the still surface of the sea and the deck merged together in one uniform absence. Sounds died away. The air sat still above me.
 
-The woman walked past on the deck, sometimes. Neither of us spoke.
+The woman walked past on the deck, sometimes. Neither of us spoke. I'm not quite sure why we didn't, but it seemed somehow un-natural. The whole boat began to seem un-natural.
 
 Eventually I wondered, with some irritation, if we might even have stopped dead entirely. I could find no-one about to ask on deck, where my duty kept me. For one moment I stupidly imagined I might be alone, the rest of the little crew having left me. I looked about. Of course we were moving. The engine still sounded, thinly and distantly. Was today any different from any other day?
 
@@ -309,8 +309,30 @@ But after some long questioning, I realised that there was only one way towards 
 
 The pass was an oblong of rough card, with paper laid on it. A printed form with spaces to fill was attached. The print was very faint and marked all over with tears, smudges and two large red stamps. I looked at it doubtfully but they assured me that it was the only way I might pass on further.
 
-I asked why they were there, but gone no answer I could understand. I asked if they were part of an army, but they looked puzzled at the idea. I asked why one of them had a gun - and he laughed.
+I asked why they were there, but gone no answer I could understand. I asked if they were part of an army, but they looked puzzled at the idea. I asked why one of them had a gun - and he laughed. The trees hung low over the barrier. I could only see a little way into the forest, or perhaps it was by then a jungle.
 
-I wondered where I might get some food; they sent me on my way, saying that I might find something nearer the city. None of them could tell me how much further I had to walk, only that they had been driven there from a nearby barracks.
+I wondered where I might get some food; they sent me on my way, saying that I might find something nearer the city. None of them could tell me how much further I had to walk, only that they had been driven there from a nearby barracks. I was sent off as an irritant - they made it clear that I should only go on and not come back that way.
 
-10450
+The rest of that day was a hard, long walk. As I carried on up the road I began to hear noises far off in the distance, a low boom, coming irregularly. After a while, I imagined it to be the sounding of a gun, but approaching nearer it was clearly some machine. 
+
+The trees began to come away from the roadside and I saw, still some what ahead of me, a large clearing with people working around it. The trees were being pulled down, with a thing that looked like a crane, only close to the ground. It seemed to require a great deal of people to operate it - they looked tiny beside it, tending to some larger animal.
+
+The machine itself had no-one inside it, but several people moved about it, pulling at ropes of wire, or chains. The long neck of the thing would be pulled back, the rest for a while under some sort of preparation. At last the neck would flail forwards heavily and land with a horrid crash on the trees in front of it. Then the men would climb onto it and start handling the neck back into position.
+
+Each one of these operations would take ten or so minutes, so I saw three in succession before I came close enough to see the results. Each great force exerted on the trees crushed several at once, but from the top branches down, so that some would remain half-demolished by the blows and others would be entirely destroyed.
+
+As far as I could see, not much attempt was being made to make any orderly path through, or even to retrieve the carcasses they had created. As soon as a tree fell completely, it would simply be pushed aside by groups of men with long metal staves.
+
+After my encounter at the barrier, I felt more wary of the people on this side of the island. From here I would assume no welcome - and that they might even begin to threaten me. How could I pass by to the city without bringing too much attention to myself?
+
+I decided that I should try to look familiar - and that I would take what I could from the clearing to make myself look un-remarkable. I went off the road, into the thick-gathered trees away from the great machine. Here there were ill-stacked piles of trunks, what looked like smaller machines, large canisters of fuel-oil and many coils of wire rope.
+
+There was also a few large tool-boxes, with caps and jackets laid on them. From behind a tree, I saw a duffel-bag, open at the top. Looking out to check I would not been seen, I came out quickly, took it up in passing and stepped back toward the road.
+
+For a while, I expected to hear voices behind me, but they were too far away to notice me. I broke into a run for a little time, until I could hear nothing but the boom of the machine. I would have to find some place to go through the bag I had picked up.
+
+Beside the road, I put myself by the largest tree-trunk I could find, well-hidden from anyone approaching. I pulled open the heavy bag and let the contents out. A cap, dirty with oil on one side. A jacket, with a fluorescent band across the back. Three cylinders of some thin metal, joined together with a string. I turned them over. The top of one came loose, to show a sort of cold stew inside.
+
+I had no spoon - and drank it from the metal container. One other cylinder was empty, save for some grains of rice. The last one had three of four strips of green-brown fibre in it, which taste sweet. At the bottom of the bag was a large canister, with a little water in it.
+
+11000
