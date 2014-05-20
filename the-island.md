@@ -161,7 +161,7 @@ I sat down heavily, glancing about for the one who had brought me in, but entire
 
 "I have nothing ... with me. I can't give you anything."
 
-Two or three of them gave a low chuckle at this. 
+Two or three of them gave a low chuckle at this. The woman put an arm round me and leaned in, telling me in a quiet voice -
 
 "Don't worry about that. There's enough for us and you as well. You can share with us."
 
@@ -169,23 +169,27 @@ She smiled again and filled the bowl. It was a sort of soup, with large mushroom
 
 "Is there a larger town nearby? I am lost. I need to find ... a way ... I was on a boat. Is there a harbour?"
 
-Most of them looked blankly back, still smiling. One woman who sat closer to the fire looked up and laughed. Beside her sat a man with two bags by his legs, as though he were just about to take them up and leave.
+Most of them looked blankly back, still smiling. One woman who sat closer to the fire looked up and laughed. Beside her sat a man with two bags by his legs, as though he were just about to take them up and leave. He turned away.
 
 "Is there not a harbour? For the boats?"
 
 The man by the fire turned to face me. This seemed to mean nothing to them. Surely the island couldn't stand on it's own, without some regular traffic? What about fishing? But, then I remembered - I had seem no other boats since I last saw mine. I had seen no-one fishing, neither had I seen any being eaten. Here, only a day's walk from the sea, they ate mushrooms - and some other stuff, which although I didn't know I was sure could not be fish. A town, then? There must be a bigger place on the island, where more people lived?
 
-"Do you want to go to the market? We will take you in the morning."
+"Do you want to go to the market? We will take you in the morning. Everything will be well there for you."
 
-After some slow questioning, I realised that these were also travellers and stopped here on their way to buy and sell at some market-town. Quite what they bought and sold I could not tell. None of them seemed to be carrying anything substantial, nothing that I could see to sell. But the place was clearly some commonly used place, where people stopped to share a meal and sleep until going on. At least I could eat - and sleep knowing that nothing would be asked of me for it.
+After some slow questioning, I realised that these were also travellers and stopped here on their way to buy and sell at some local town. Quite what they bought and sold I could not tell. None of them seemed to be carrying anything substantial, nothing that I could see to sell. But the place was clearly some commonly used place, where people stopped to share a meal and sleep until going on. At least I could eat - and sleep knowing that nothing would be asked of me for it.
 
-Slowly, each one left the table and passed into darker places around the room. Each one fell onto a rolled pallet, which they had carried with them. I had no pallet of my own, but one offered me a place by them and I quickly fell asleep.
+Slowly, each one left the table and passed into darker places around the room. Each one fell onto a rolled pallet, which they had carried with them. The last lamp on the table was turned down until I could barely see across to the bench opposite. The place room was very quiet, warm, filled with the earth and the sky above. 
 
-I expect it was being so tired that made me not to dream, or to forget whatever dreams I had. Whatever it was, the night passed very peacefully, even though I was in a place where I must have seemed entirely a stranger to all of them. They asked nothing of me, nor questioned me. There seemed no curiosity in them at all, just a willingness to have me there for a while and to put me back on my way. 
+I cast about for somewhere to lay down. I had no pallet of my own, but one of the women offered me a place by them and I quickly fell asleep. I expect it was being so tired that made me not to dream, or to forget whatever dreams I had. Whatever it was, the night passed very peacefully, even though I was in a place where I must have seemed entirely a stranger to all of them.
 
-In the morning, I tried to speak to show my gratitude to them - but even the ones who had spoken to me first the night before seemed not to understand. They pulled on backpacks and handed round more chunks of bread, apples and a jug. In the jug, which each took a gulp from, was a foaming small-beer. Each went out to a back courtyard and joined into a loose group, as though they had to travel together but had no wish to push themselves on any other. 
+They asked nothing of me, nor questioned me. There seemed no curiosity in them at all, or what I might have called curiosity, just a contentment to have me there for a while and to put me back on my way. 
 
-I couldn't quite understand why they were milling about, until a cart drew up. One by one, they all got in - and a hand was put down to pull me up. I sat at the back. They spoke only a little as we slowly trundled along. Sometimes I wondered it it might be quicker to walk, but I thought it would look churlish to refuse their invitation, especially after being with them for a night. 
+In the morning, I tried to speak to show my gratitude to them - but even the ones who had spoken to me first the night before seemed not to understand. They pulled on backpacks and shared around more chunks of bread, apples and a jug. In the jug, which each took a gulp from, was a foaming small-beer.
+
+Each went out to a back courtyard and joined into a loose group, as though they had to travel together but had no wish to push themselves on any other. I couldn't quite understand why they were milling about, until a cart drew up. One by one, they all got in - and a hand was put down to pull me up. I sat at the back.
+
+They spoke only a little as we slowly trundled along. Sometimes I wondered it it might be quicker to walk, but I thought it would look churlish to refuse their invitation, especially after being with them for a night. Although I felt some obligation to them, none of them seemed to be concerned in getting anything in return from me.
 
 The track became a street of packed earth and stones. They spoke a little more to one another as the noise of the road beneath us grew. Beside the street came the occasional house, or shop, or storage-place - it was most often difficult to tell which was which. Sometimes one or two people would come out to watch us pass. I had the thought that we might be country-folk and not a common sight. 
 
@@ -331,8 +335,22 @@ There was also a few large tool-boxes, with caps and jackets laid on them. From 
 
 For a while, I expected to hear voices behind me, but they were too far away to notice me. I broke into a run for a little time, until I could hear nothing but the boom of the machine. I would have to find some place to go through the bag I had picked up.
 
-Beside the road, I put myself by the largest tree-trunk I could find, well-hidden from anyone approaching. I pulled open the heavy bag and let the contents out. A cap, dirty with oil on one side. A jacket, with a fluorescent band across the back. Three cylinders of some thin metal, joined together with a string. I turned them over. The top of one came loose, to show a sort of cold stew inside.
+Beside the road, I put myself by the largest tree-trunk I could find, well-hidden from anyone approaching. I pulled open the heavy bag and let the contents out. A cap, dirty with oil on one side. A jacket, with a fluorescent band across the back. Three cylinders of some thin metal, joined together with a string.
 
-I had no spoon - and drank it from the metal container. One other cylinder was empty, save for some grains of rice. The last one had three of four strips of green-brown fibre in it, which taste sweet. At the bottom of the bag was a large canister, with a little water in it.
+I turned them over. The top of one came loose, to show a sort of cold stew inside. I had no spoon - and drank it from the metal container. One other cylinder was empty, save for some grains of rice. The last one had three of four strips of green-brown fibre in it, which taste sweet. At the bottom of the bag was a large canister, with a little water in it, which I drank. 
 
-11000
+I bound up all I could take in the bag and left the rest by the bottom of the trunk. I sat for a while, listening to the sound of the forest - or rather, the sound of the great machine I had recently passed. I smiled at the thought that I had got past them easily: not just got past them, but taken my food and clothing from them. What fools they must be - and what a wily creature I was!
+
+I pulled my newly-got jacket close to me - and my oil-stained cap low over my eyes - and stepped out into the roadway again to carry on walking. As I walked, I began to plan the way ahead. If they had machines out here, with those drums of fuel-oil, surely there must be some transport to carry them about. I should be able to get myself a faster way up to the city if all of those workers were as slow as the first lot I'd chanced across.
+
+I walked on, thinking of how best I could cheat my way to my destination. I smiled at myself, thinking ... thinking ... and then I stopped. What was I thinking? That it was good for me to be a thief? That I should carry on my way, by stealing? Hadn't the people of the island welcomed me in the market? Hadn't one of them even rescued me from the sea?
+
+Quickly I felt entirely ashamed - and thought of how I had been on the boat and what my strange journey had been since then. I could hardly blame the islanders, which seemed to have a simple life, or one that seemed simple to me. How could I feel such delight at stealing from them? Hadn't they given me so much already?
+
+Of course, those after I had crossed the yellow ditch weren't quite so welcoming, but they were soldiers and had their jobs to do. The workers in the forest taking down the trees had left their clothes and food and I had stolen them. I had stolen them - perhaps the first time I had ever stolen without thinking it was plainly wrong to do so.
+
+Would I have starved, if I had not taken that food? Should I not simply have asked for something to eat, or for some clothes? Thinking of it horrified me. Something in me had changed. I could not blame the islanders, so it must have been in me all along.
+
+11550
+
+
