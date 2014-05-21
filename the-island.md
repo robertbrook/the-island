@@ -349,8 +349,32 @@ Quickly I felt entirely ashamed - and thought of how I had been on the boat and 
 
 Of course, those after I had crossed the yellow ditch weren't quite so welcoming, but they were soldiers and had their jobs to do. The workers in the forest taking down the trees had left their clothes and food and I had stolen them. I had stolen them - perhaps the first time I had ever stolen without thinking it was plainly wrong to do so.
 
-Would I have starved, if I had not taken that food? Should I not simply have asked for something to eat, or for some clothes? Thinking of it horrified me. Something in me had changed. I could not blame the islanders, so it must have been in me all along.
+Would I have starved, if I had not taken that food? Should I not simply have asked for something to eat, or for some clothes? Thinking of it horrified me. Something in me had changed. I could not blame the islanders, so it must have been in me all along. 
 
-11550
+I stood for a while, still in the middle of the road. I thought back to how I was on the boat, how I was before I left. I never would have taken something like that - stolen something. I should go back, give back what I had taken. But, they would ... what would they do? There were the soldiers, back there. And, after all, I had to keep myself warm and alive. What else could I have done?
+
+As soon as I had started to walk again, I heard an engine on the road ahead. I came to the side of the road to let it past and waited. It was a large four-wheeled carrier, with a high cabin at the front and a low, angle-roofed container at the back. It drew up and the driver leaned out.
+
+"You're late. You should have been with the others. What are you doing out here?"
+
+He must think I was one of the workers, dressed as I was. I was about to say I wasn't one of them, when I realised that he might well turn me in.
+
+"Which way?"
+
+"Up the hill, of course."
+
+Then I would be taken further towards the city. At last! An end, finally, to tramping along on my own, or swinging along on some slow cart. Now I would be travelling fast enough to reach the city before night - and I would find my papers and the island would soon be just a strange memory.
+
+The engine of the thing idled as I clambered in through a thick canvas, opened at the back. The floor of the carrier was angled as the roof was, so the whole thing formed a sort of hexagonal tube. I hadn't the chance to even get my bearings before the thing gave a sudden lurch. The engine roared and we turned slowly to face up the hill.
+
+The driver spent some time wrenching through the gears before the engine took a grinding note and we set off - at first quite slowly, then picking up speed. I put myself down where I could on the metal flooring and took a look about. The carrier was clearly used for workers and their machinery. There were oil-stains and marks of chemicals all over, with the metal dented heavily in several places.
+
+Right at the back was the un-mistakable smell of the yellow ditch, with a small amount of that bright-yellow liquid running in the grooves of the metal flooring. I decided to sit as close to the heavy canvas hanging at the back of the carrier as I could, so as to be as far from the smell as I might get.
+
+From my perch at the back, I saw the forest thinning rapidly away, with clearings multiplying and joining together. At first, there was one or two groups of workers tending their machines. Then, as the afternoon wore on, I passed what looked like small settlements: groups of workers, possible put out here to clear the land for other uses. 
+
+If they were foresters, where were the trunks of the trees? The machine I had seen earlier just smashed at whatever was in it's way. I'd not seem any piles of logs, anywhere. Perhaps it was used there and then, for fuel?
+
+12100
 
 
