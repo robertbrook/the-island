@@ -373,7 +373,25 @@ Right at the back was the un-mistakable smell of the yellow ditch, with a small 
 
 From my perch at the back, I saw the forest thinning rapidly away, with clearings multiplying and joining together. At first, there was one or two groups of workers tending their machines. Then, as the afternoon wore on, I passed what looked like small settlements: groups of workers, possible put out here to clear the land for other uses. 
 
-If they were foresters, where were the trunks of the trees? The machine I had seen earlier just smashed at whatever was in it's way. I'd not seem any piles of logs, anywhere. Perhaps it was used there and then, for fuel?
+If they were foresters, where were the trunks of the trees? The machine I had seen earlier just smashed at whatever was in it's way. I'd not seem any piles of logs, anywhere. Perhaps it was used there and then, for fuel? 
+
+The carrier trundled on, changing gear now and then as the road rose and fell. Once or twice we slowed as another similar carrier passed us going the other way. One had workers in, the other a few soldiers, their guns pointed up through the canvas.
+
+The road flattened and widened. We passed signs, which I thought must be the edge of the city, or at least of the more built-up part of the island. I could only see the back of them as we passed. I sat back, revelling in the thought that my long journey would soon be over. I would present myself for my papers and be gone, as soon as possible.
+
+I was beginning to relax a little, when the carrier came to a sudden stop. The engine ran for a minute, then stopped too. I heard the driver's door open and slam shut. I waited for a minute or so, quite unsure what to do.
+
+Eventually I pulled the canvas aside and looked out. We were in a lorry-park, beside several more carriers. I had begun to rain. The place was covered in broken tarmac. I looked round but could see neither the driver, no anyone else. I gathered together what I could and slowly let myself down.
+
+There was no-one to be seen around at all. Around two side of the lorry-park were apartment-blocks, which looked all but derelict. Looking closer, I saw that they had in fact never been occupied - almost completed, then seemingly abandoned. Roofs and walls were missing, not through decay but through incompletion. The rain fell through several floors. There were windows only on the ground floor - and even there they were painted over.
+
+I thought I must have been on the outskirts of the city and more travelling lay ahead of me. I pulled my stolen jacket in and my stolen cap down over my brow. I tucked my hair in at the back as well as I could. For a moment I stood waiting as though for direction, but then started on my way towards the road. I thought I saw someone watching from one of the doorways - but the whole block was clearly empty.
+
+With the lorry-park behind me, I was back on the road. Here it had broken into a dual-carriageway, with carriers passing now and then. There were also a few people on bicycles - all dressed in a similar style, not a uniform, but a rather obvious fashion. 
+
+Perhaps they didn't import much in the way of clothes. Or perhaps it was some sort of national dress. Or one of those styles where it's best to look like you're unconcerned about your appearance. In any case, it gave then all a similar look: people, worker and soldiers all seemed of one lot. I couldn't tell any of them apart. Suddenly I felt that I might well start to stand out here, that I might become different and noticeable, when i had very much wanted just to be invisible.
+
+I walked on - and a sort of pavement emerged from the road-side. Where a gutter and kerb should have been, there was a shallow channel. This was the only mark between those walking and the bicycles and carriers passing by.
 
 12100
 
