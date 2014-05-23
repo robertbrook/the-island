@@ -393,6 +393,24 @@ Perhaps they didn't import much in the way of clothes. Or perhaps it was some so
 
 I walked on - and a sort of pavement emerged from the road-side. Where a gutter and kerb should have been, there was a shallow channel. This was the only mark between those walking and the bicycles and carriers passing by.
 
-12100
+The traffic both on the road and the pavement increased. The only motors passing seemed to be working: the carriers, some empty but most with workers or soldiers in them; a couple of larger things that moved more slowly and had three soldiers clung to the side by a large turret; many more bicycles.
+
+The bicycles themselves seemed to be of an almost uniform type. I couldn't see any cars on the road at all, only the lorries and military things. Squalls of rain passed quickly overhead, making the way difficult to follow. The surface of the pavement became slippery and now and then a bicycle would swerve towards me.
+
+I must, I realised, find somewhere to put myself again before it became dark. I couldn't stay out here in the rain. The main road ahead finally separated around a large circus, with traffic swirling around it. In the middle was a grubby-looking stretch of grass, with a couple of kiosk in front of what looked like a sort of large plinth, on which a statue no longer stood.
+
+On the side of one of the kiosks I could see a stylised map, rather like the sort of thing one might find for tourists - though I could see no-one about who would fit anything like that description. I waited for a gap in the traffic and made a dash for it.
+
+I wasn't quite quick enough and caught a cuff on the back of the head from a passing cyclist. My cap fell off and my hair suddenly blew forward in the wind and rain. At least two more cyclists laughed at me as they passed. The driver of a carrier leaned out and gave a whistle, followed by a leering look as he slowly drove off.
+
+I picked up my cap as quickly as I could and put it back on, feeling rather as though it had now taken the place of armour. The kiosks both looked particularly uninviting. One was clearly closed for the day, the other had three customers sat at a metal bench attended by a surly-looking vendor. None of them noticed me.
+
+The map looked old and marked heavily by weather. It had clearly been there for some time, then forgotten for even longer. It was a map of the city, as far as I could see. I could make out the road I had come in from, since it headed down towards the middle of the island. At the top of the map lay my destination: a place where the city met the sea. I couldn't see a port or harbour marked, but this map was for tourists, not those wanting to leave the place.
+
+A wreath of flowers was printed around the name of the city, but that had been scribbled over in thick marker pen. Roads and other things seemed quite clear despite the state of the diagram. Around the map were buildings drawn in the style of a fairy-tale: a museum, perhaps; an art gallery; a pair of long, open boulevards with cafes; a great roundabout where a grand restaurant stood in front of an admiring crowd.
+
+I looked more closely at the map. If that was the road I had come on, then - surely this place I stood was where the restaurant was marked. I looked about. There was nothing except the two kiosks.
+
+13200
 
 
