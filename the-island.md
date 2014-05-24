@@ -34,7 +34,8 @@ In my cabin were my papers, my little book, my boots, my bag of clothes which we
 
 We slipped into the night. The engine seemed even more distant. The deck was empty, as it had been all through the day. I stood outside my cabin. The sun set quickly, as it always did. The smell of the sea remained, everything stayed as it always did. I came into my cabin to find my book, which I did not read, to pull off my jacket but leave my shirt, to sit on the metal frame of the bunk and to look down and out ... as I had done for days and weeks before.
 
-Usually I slept well, or normally, I should say. For many days I fell asleep and did not dream, though I woke not feeling quite a rested as I should have. My place was well enough, though. I had food to eat and space enough. As every day became the same, I grew used to any little difference.
+Usually I slept well, or normally, I should say. For many days I would fall asleep and think I'd never dream, though I woke not feeling quite a rested as I should have. My place was well enough, though. I had food to eat, plain though it was - and space enough. As every day became the same, I grew used to any little difference.
+
 The wash of the seas on the boat, the run of the engine and the otherwise quiet became well-known to me. These sounds changed hardly at all in the night - and rose only a little in the morning. I began to wake, earlier than I should. It was still dark, then.
 
 Not a sound had changed, except for the engine. The moon rose. The moon was full. The moon was still full. I must have been mistaken, then, because it can't have stayed like that for so long. But it seemed like it had; hung there in the same place, a full moon as it had been yesterday and as I expected it tomorrow.
@@ -65,9 +66,9 @@ The sound of the sea rose and the other sounds faded. Just as I thought I had se
 
 I cannot tell how much time passed. Minutes only. Though it seemed later to be longer, since the sky had turned from a sudden black to a steady lifting blue. I fell beneath the waves again. I did not feel any fear, though I'm sure I should have done. I did not struggle. I let the sea lift me and release me. I had no expectation of reaching the shore, if any shore was there.
 
-I felt almost as though I might fall asleep, or dream myself into some other state. Perhaps I had never woken from some dream aboard the ship. Perhaps I was still in my bunk, about to wake and step out onto the smooth, un-moving deck.
+I felt almost as though I might fall asleep, or dream myself into some other state. Perhaps I had never woken from some dream aboard the ship. Perhaps I was still in my bunk, about to wake and step out onto the smooth, un-moving deck. Sleep usually came very easily on the boat.
 
-Soon, I closed my eyes. I opened them to see the last stars leave the sky. My eyes closed again. I could hear the waves breaking, somewhere - but too far off for me. I settled myself to let go here, listening to the hush of the water and aware the the sun might rise without me there to see it. I felt as though I might just sleep.
+Soon, I closed my eyes. I opened them to see the last stars leave the sky. My eyes closed again. I could hear the waves breaking, somewhere - but too far off for me. I settled myself to let go here, listening to the hush of the water and aware the the sun might rise without me there to see it. I felt as though I might just sleep, leaving everything, forgetting everything. The world was nothing to me and I nothing to it. It had always been this way and I was only then knowing it to be true.
 
 The waves carried me up, then down again. I felt no danger, though I should have done otherwise. It would have been an easy thing to let go - I knew I could not get back to the boat and I did not know how I might reach the shore. I couldn't tell if I was being carried away, or towards ...
 
@@ -105,7 +106,9 @@ I stood in the entrance, lost between the outside and in. Outside, there was no 
 
 I hardly knew that we had passed through a doorway, but we clearly had. The figure sat at some sort of bench, or window-seat. The floor was covered with a sort of matting, from the doorway right up to the edges of the room. By the figure, a recess into the ground showed a pot, or brazier, low under which a pile of embers glowed.
 
-The first communication the figure made was to motion me to sit. I put myself at the other end of the bench. Between us, the bench grew wider, rather like a tray. There rested two jars, very roughly made. The figure passed a hand over them, mentioning me to drink. It was warm, a sort of tea, but not tea. When I put it down, I saw there were several discs, like oat-cakes, but thicker. They were made of some compacted, greenish stuff. Although I should have been exhausted, hungry, I found myself eating one as though only sampling some offered delicacy, for the sake of politeness.
+The first communication the figure made was to motion me to sit. I put myself at the other end of the bench. Between us, the bench grew wider, rather like a tray. There rested two jars, very roughly made. The figure passed a hand over them, mentioning me to drink. It was warm, a sort of tea, but not tea. When I put it down, I saw there were several discs, like oat-cakes, but thicker. They were made of some compacted, greenish stuff.
+
+Although I should have been exhausted, hungry, I found myself eating one as though only sampling some offered delicacy, for the sake of politeness. There was a fruit, cut in pieces that might be eaten all at once. It was pink, translucent, like a white peach or a lychee. It had a smell that was something other than floral; sweet, but almost like wood.
 
 The figure watched. And, when it had finished, made some formal motion to me. I felt I must acknowledge the help I had been given, but couldn't think of anything to say. I looked up, for the figure was a good head taller than I. I only thought to mirror the gesture made to me, which seemed too little, but also enough to satisfy the situation.
 
@@ -177,13 +180,13 @@ The man by the fire turned to face me. This seemed to mean nothing to them. Sure
 
 "Do you want to go to the market? We will take you in the morning. Everything will be well there for you."
 
-After some slow questioning, I realised that these were also travellers and stopped here on their way to buy and sell at some local town. Quite what they bought and sold I could not tell. None of them seemed to be carrying anything substantial, nothing that I could see to sell. But the place was clearly some commonly used place, where people stopped to share a meal and sleep until going on. At least I could eat - and sleep knowing that nothing would be asked of me for it.
+After some slow questioning, I realised that these were also travellers and stopped here on their way to buy and sell at some local town. Quite what they bought and sold I could not tell. None of them seemed to be carrying anything substantial, nothing that I could see to sell. But the place was clearly some commonly used place, where people stopped to share a meal and sleep until going on. At least I could eat - and sleep knowing that nothing would be asked of me for it. It was a great relief to know that I had fallen amongst people who would care for me.
 
 Slowly, each one left the table and passed into darker places around the room. Each one fell onto a rolled pallet, which they had carried with them. The last lamp on the table was turned down until I could barely see across to the bench opposite. The place room was very quiet, warm, filled with the earth and the sky above. 
 
-I cast about for somewhere to lay down. I had no pallet of my own, but one of the women offered me a place by them and I quickly fell asleep. I expect it was being so tired that made me not to dream, or to forget whatever dreams I had. Whatever it was, the night passed very peacefully, even though I was in a place where I must have seemed entirely a stranger to all of them.
+I cast about for somewhere to lay down. I had no pallet of my own, but one of the women offered me a place by them and I quickly fell asleep. I expect it was being so tired that made me not to dream, or to forget whatever dreams I had. Whatever it was, the night passed very peacefully, even though I was in a place where I must have seemed entirely a stranger to all of them. The sleep was not like that of the boat, but something more natural.
 
-They asked nothing of me, nor questioned me. There seemed no curiosity in them at all, or what I might have called curiosity, just a contentment to have me there for a while and to put me back on my way. 
+They all had their places around the room. They asked nothing of me, nor questioned me. There seemed no curiosity in them at all, or what I might have called curiosity, just a contentment to have me there for a while and to put me back on my way. 
 
 In the morning, I tried to speak to show my gratitude to them - but even the ones who had spoken to me first the night before seemed not to understand. They pulled on backpacks and shared around more chunks of bread, apples and a jug. In the jug, which each took a gulp from, was a foaming small-beer.
 
@@ -269,7 +272,7 @@ Around the walls were stacked several of the glass bottles in wicker baskets. Th
 
 I had expected the usual round of greetings, but this night was not for that, it seemed. Not one of them offered any more than a glance to me. A couple shared a loaf of bread, but it wasn't passed round. I though I had better find my place to sleep and make the best of a breakfast I could in the morning.
 
-I put myself down in the corner nearer the lamp and pulled a large sheet of sacking over me. I was cold and hungry, not not enough to keep me from sleep. Within only a few minutes, I had left the quite world of the town and fallen into the world of dreams again. Once more, I dreamed of home - or, what came after home: the beginning of my journey.
+I put myself down in the corner nearer the lamp and pulled a large sheet of sacking over me. I was cold and hungry, not not enough to keep me from sleep. Within only a few minutes, I had left the quite world of the town and fallen into the world of dreams again, dreams I had very often forgotten before, if I had dreamed at all. But now, once more, I dreamed of home - or, what came after home: the beginning of my journey.
 
 I was shaken awake, by someone I couldn't quite see. By the time I was up, I was the last in the place. There was a smell, one I'd not noticed before. Something acidic. Outside, the square was empty. I looked back towards the way I'd come, wondering for a moment if I should go back.
 
@@ -409,8 +412,22 @@ The map looked old and marked heavily by weather. It had clearly been there for 
 
 A wreath of flowers was printed around the name of the city, but that had been scribbled over in thick marker pen. Roads and other things seemed quite clear despite the state of the diagram. Around the map were buildings drawn in the style of a fairy-tale: a museum, perhaps; an art gallery; a pair of long, open boulevards with cafes; a great roundabout where a grand restaurant stood in front of an admiring crowd.
 
-I looked more closely at the map. If that was the road I had come on, then - surely this place I stood was where the restaurant was marked. I looked about. There was nothing except the two kiosks.
+I looked more closely at the map. If that was the road I had come on, then - surely this place I stood was where the restaurant was marked. I looked about. There was nothing except the two kiosks. 
 
-13200
+A couple of metal tables - really discs held up by props - stood a little way from the kiosks. Someone had left the remains of a meal and I immediately picked up a paper bag containing what looked like a toasted sandwich. It looked very dry and smelled of vinegar. Despite any hunger, I could not face to eat it.
+
+Also left on the table was a newspaper. It was thin, on cheap paper, printed in black and red. On the front page were simple word puzzles, cartoons and what I though might have been sports or lottery results. I left it there.
+
+I went back to the map and tried to find how I might get to the harbour, or what took the place of the harbour. Whatever happened I knew I must reach or pass through the most built-up part of the city. There I could find a post-office, or town-hall, or registry or some place I could tell who I was - and at last be sent on my way.
+
+There were always arrangements to be made, I knew that. Papers, passports, passes - all these things must be done. They are the necessary things we have to do to travel, especially in far-off places where we are unknown. And that was where I was: in a far-off place, quite unknown.
+
+But the people on the other side of the island had been quite friendly to me. Here in the city it was not at all like that. The people rarely looked at me - in fact, they seemed almost not to look at each other. If I did look alien to them, either they were hiding their reactions ... or ... I could not think.
+
+The map showed the city as it once was supposed to have been, or wished to be, or wanted to be seen. I could not imagine that the place would ever have really looked anything like the diagram suggested. I could not even explain it as many years passing and the city falling into ruins. It was almost as if it was a pretence: that people claimed that the city was some famous attraction for tourists, all the time knowing that it had never been that - nor would it ever be. 
+
+The roads, though, were in the right place, as far as I could make out. 
+
+13750
 
 
