@@ -440,8 +440,24 @@ I was pushed to the side of the pavement by the run of traffic. Walking seemed t
 
 I tried to put it out of my mind and look for the square ahead. According to the map it should have been only a short walk up ahead, but I began to think I'd headed in the wrong direction. I found myself walking not towards an open square, but to a series of tall apartment-blocks, not as squat as the ones I had seen before.
 
-I must have taken a wrong turning somewhere - but how could I? There was only one road to follow. I decided to carry on up to the blocks to get my bearings.
+I must have taken a wrong turning somewhere - but how could I? There was only one road to follow. I decided to carry on up to the blocks to get my bearings. The roads became even more full of traffic, sometimes the carriers came in lines of three or four together - moving so slowly and closely that they seemed like one, long mechanical progression.
 
-14300
+The bicycles swarmed about me, pushing and edging each other out of the way. Once or twice the road became so crowded that the pavement was taken over entirely by cyclists - none of whom cared to slow down or wheel their near-identical machines, but sped on as best they could.
+
+I came up to where I had expected to see a large square, but faced across the busy street only a wall of buildings, some looking recently built. The ground floors of most looks strangely un-featured, as though the real entrances were a floor below the ground and I was looking at the blank expanses of the upper floors.
+
+The roads certainly formed a square, but there was no open ground in the middle. Slowly I realised that I was in the right direction after all - only that what had been the square had been filled in, over the years, with construction. The city was erupting into itself.
+
+I knew where the post-office building was supposed to be and tried to make my way towards it. Each tall construction looked much like the last, with little to tell if it was residential or commercial. In fact, the only places selling anything seemed to be the little kiosks I had passed and several similar small concerns.
+
+There was a surprisingly thin kiosk selling a small selection of newspapers; a tricycle converted to carry bundles of what looked like work-clothes; two men standing at a metal cart selling some sort of food - though the line was so long I couldn't see what it was they were selling.
+
+Where all the traffic was going I couldn't tell either, but I knew I must find some relief when I reached the post-office: I could come out of the great mass of people and finally resolve the situation. I wanted to be away from the place as much as the people in the city wanted me away. This was no place for tourists, or even a casual visitor or accidental traveller. Their city had business that excluded people like me - I was an irritation, a mistake, something to be borne only for a little while and then thrown out.
+
+I would be glad to have them rid of me. I simply couldn't survive in such a place. I wanted nothing more than to be back on my bunk in the boat - however tedious it had seemed back then, it was almost inviting now. How I missed my regular tasks and meals. How I missed the quiet companionship of the rest of the crew.
+
+I was so absorbed in myself I almost missed the place I was looking for: on the large windows of the block I was walking past was the post-horn logo, with 'PTT' in large orange letters beneath in. In fact, the entire thing was so large it reached from the ground up to the second storey - but faced flat onto the pavement. It seemed very odd to have a mark so prominent and yet seemingly so easy to miss, especially for a visitor.
+
+14850
 
 
