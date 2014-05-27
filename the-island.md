@@ -60,6 +60,8 @@ Slowly, the air moved about me. Slowly, I looked up to see the waves falling dow
 
 I can't remember falling further into the water. I can only remember coming up, slowly, without effort. I turned to see the boat fall suddenly, then rise. No-one called. Neither did I call. I turned again as the waves hid it and I rose. The stars rose and fell with me. The few lights the boat showed slewed and fell away, then back, then ... no, now they were stars.
 
+I couldn't tell when I was in the water - it was as though the sky and the sea were of the same stuff. If I was in the air, I fell slowly - if I was in the water, I did not feel it as an encumbrance. Certainly I did not fear drowning, though I imagined I might drown. But I was not afraid of that. Not because I was brave, or that I didn't think I would drown - but for some other reason I could not tell.
+
 The boat loomed up, fell towards me and blackened out the sky. I fell into it and a waves passed. I turned, again. The boat showed another side, suddenly much further off. The waves took me up to show the top-lights touch the dawn horizon, then disappear. The boat fell away completely, save for the resumed but irregular call of the engine.
 
 The sound of the sea rose and the other sounds faded. Just as I thought I had seen the last of it, the boat appeared again, rolling up between troughs. The horizon wheeled about and the boat resolved into something more solid. The waves fell and rose around it, but it no longer moved. It flattened, lengthened, lightened. Soundlessly, the boat appeared as a shore on which the waves - some way off - were breaking. I fell beneath the water.
@@ -76,21 +78,23 @@ And as I closed my eyes again, I thought I saw the boat, or the shore, or someth
 
 I felt light, kept up in the water. Floating in a sort of very pale blue, not like any water I had seen before. I suppose I must have been coming towards the shore. I did not panic. The form moved towards me. The blue water became white. It came close again - and a hand and then an arm came down to the water. With a light grasp, I was lifted up. The white water became the sky. Suddenly heavy, out of the water, my eyes closed again.
 
-I rose as the sun rose, dripping light. A strong single arm had taken me easily from the water and put me down quietly at the foot of the little raft, or canoe, or what-it-was. I laid on one side, able only to glance up against the light. I felt almost as though I had been pulled back from something I would rather have continued into.
+I rose as the sun rose, dripping light. A strong single arm had taken me easily from the water and put me down quietly at the foot of the little raft, or canoe, or what-it-was. I laid on one side, able only to glance up against the light. I felt almost as though I had been pulled back from something I would rather have continued into. The sun resolved into lamp-light, coming from some place above me but behind some other shape.
 
-We began to move, though quite how I could not make out. A figure sat high above me on the little raft, guiding us towards the flat shore. It seemed wholly still, making no movement or sound. It wore one piece of clothing; something like a close-fitting cloak or long cape, which hung down low about the wearer's ankle. Presumably it was holding a tiller beneath this, but I could not see. 
+We began to move, though quite how I could not make out. A figure sat high above me on the little raft, guiding us towards the flat shore. It seemed wholly still, making no movement or sound. It wore one piece of clothing; something like a close-fitting cloak or long cape, which hung down low about the wearer's ankle. Presumably it was holding a tiller beneath this, but I could not see. I could not see the lamp itself, but a soft light showed the edges of whatever thing we travelled on.
 
 I may have spoken, or even just tried to speak - though if I had made no sound I could not tell, or I cannot remember. Even if I had, the figure made no response and no movement toward me. We approached the shore, the water becoming entirely transparent. As the flat sand came towards us, instead of the waves breaking, the surface of the sea was like a pond, entirely still.
 
 Our little vessel seemed to slip from the surface of the sea onto the surface of the land. The figure was standing. The figure appeared on the sand and I followed, pulled up by some relaxed force. Despite everything that happened, I felt quiet and at rest. The noise of the sea seemed far off. I was on a beach, not on a beach. I had left the sea, almost.
 
-The strand stretched out in both directions, equally flat and un-interrupted by rocks or weed from the sea. We seemed the only people there - almost the only ones who had ever been there. I looked down and saw my footprints being swallowed again by the sand. Wherever we walked we left no trace.
+The strand stretched out in both directions, equally flat and un-interrupted by rocks or weed from the sea. We seemed the only people there - almost the only ones who had ever been there. I looked down and saw my footprints being swallowed again by the sand. Wherever we walked we left no trace. The lamp-light led the figure and the figure in turn led me.
+
+Behind me the sea was very quiet, almost as though there was no tide or waves. The colour of the sea and the colour of the sky merged together; the stars above mirrored in the surface below. In front was the beginnings of an island: the sand leading to a surprisingly straight line of low trees. There were no lights anywhere, nor any sound, save for the stars and the sea.
 
 The figure stood again at the foot of several regular dunes, which rose only a little from the beach. Short grass and salty plants sat beside a thin path. I followed, not knowing where we were approaching but feeling no concern. I had no wish to look for the boat. I had no wish to be anywhere but where I was - even though I had no idea where it was I had been brought, or what might be behind the dunes.
 
-The figure always stayed some short way beyond me, as though marking some limit beyond which I could or should not come, or some space into which it preferred me not to put myself. It made no gesture, but seemed intent that I come with it. It was not insistent, but compelling. I did not feel threatened, but I did feel that the figure was clearly stronger than me: after all, it had pulled me from the water quite easily with one arm.
+The figure always stayed some short way beyond me, as though marking some limit beyond which I could or should not come, or some space into which it preferred me not to put myself. It made no gesture, but seemed intent that I come with it. It was not insistent, but compelling. I did not feel threatened, but I did feel that the figure was clearly stronger than me: after all, it had lifted me clear from the water quite easily with one arm.
 
-Thinking of it now, I cannot remember ever having seen the figure move, though clearly it cannot have stayed ... we must have travelled without me noticing, or having my mind fixed on some other thing. Perhaps I had my eyes closed from time to time. Perhaps I couldn't tell how the time passed, or if it had passed at all.
+Thinking of it now, I cannot remember ever having seen the figure move, though clearly it cannot have stayed ... we must have travelled without me noticing, or having my mind fixed on some other thing. Perhaps I had my eyes closed from time to time. Perhaps I had been looking down at the path in the dark to check my way. Perhaps I couldn't tell how the time passed, or if it had passed at all.
 
 The air was again quite still. There was a light salt of the sea, though little else. The dunes rose and fell evenly for a way, then thicker grasses came up beside the path. One last dune parted us from the memory of the sea and we passed into a path approaching a line of short, dark-green shrubs. The figure stood beneath a tree, where the path came near to it. The path tended upward for a little way, the trees gathering close to it, so close that the figure dipped a little now and then.
 
@@ -110,9 +114,11 @@ The first communication the figure made was to motion me to sit. I put myself at
 
 Although I should have been exhausted, hungry, I found myself eating one as though only sampling some offered delicacy, for the sake of politeness. There was a fruit, cut in pieces that might be eaten all at once. It was pink, translucent, like a white peach or a lychee. It had a smell that was something other than floral; sweet, but almost like wood.
 
-The figure watched, or seemed to watch. And, when it had finished, made some formal motion to me. I felt I must acknowledge the help I had been given, but couldn't think of anything to say. I looked up, for the figure was a good head taller than I. I only thought to mirror the gesture made to me, which seemed too little, but also enough to satisfy the situation.
+Of course I was tired, or think I must have been tired, though my mind was not on that. I did not find my situation alien, or fascinating, but oddly calming. I had not, of course, been there before, or any place like it - but I felt at ease with my surroundings entirely. Almost as though I had visited it a long time before and forgotten for many years.
 
-The figure sat still, unmoving. I sat, too. I felt content and quite well. I felt better, really, than I had done for at least a month, maybe several months. Maybe a year. I felt no sense of happiness, but a sort of restedness and a slight intimation of possibility - as though I had been to in a situation that I had wished and worked for, for some long time. I felt as though I had come near to realizing some goal, or that I had just overcome a series of obstacles.
+The figure watched, or seemed to watch. And, when it had finished, made some slight but formal motion to me. I felt I must acknowledge the help I had been given, but couldn't think of anything to say. I looked up, for the figure was a good head taller than I. I only thought to mirror the gesture made to me, which seemed too little, but also enough to satisfy the situation.
+
+The figure sat still, unmoving. I sat, too. I felt content and quite well. I felt better, really, than I had done for at least a month, maybe several months. Maybe a year. I felt no sense of happiness, but a sort of restedness and a slight intimation of possibility - as though I had been to in a situation that I had wished and worked for, for some long time. I felt as though I had come near to realizing some goal, or that I had just overcome a series of obstacles. There seemed nothing else to do.
 
 But, thinking on it, I couldn't think of a thing that would have made me think that way. I should have been exhausted, or in a panic, or anything other than the way I felt then. But there I sat, on my end of the bench, if it was a bench. At the other end, a figure who had pulled me from the water, away from what I knew would be the end. An end.
 
@@ -124,7 +130,9 @@ Then, for the first time, I wondered if the figure was a man, or a woman. It had
 
 "I don't want to go anywhere."
 
-There was a clear moment of silence. I couldn't think what to say. Or course I wasn't from there. In fact, I didn't even know where I was. Only that we were weeks away from the port - and I was on, presumably, an island small enough to to have been a stop on our way. The island was supposed to be unvisited. Wherever I was, I wasn't supposed to be.
+There was a clear moment of silence. I couldn't think what to say. There didn't seem to be anything I should say. Or course I wasn't from there. In fact, I didn't even know where I was. Should I tell who I was and how I had come to be there? That seemed unnecessary. Only that we were weeks away from the port - and I was on, presumably, an island small enough to to have been a stop on our way. The island was supposed to be unvisited. Wherever I was, I wasn't supposed to be.
+
+We seemed to sit for some time. How long, I could not tell, though it must have been quite a time in all, since a light had started to come in at the deep windows. I began to look about.
 
 As far as I could see, there was little else in the room. No other furniture, no storage-places, only a short dividing partition that could be folded and taken down. I could not see what was behind it. The only light came in where the windows should have been, but there was no glass, only open shutters. The corners of the room were dim, the light falling in patches at my feet.
 
@@ -364,7 +372,7 @@ He must think I was one of the workers, dressed as I was. I was about to say I w
 
 "Which way?"
 
-"Up the hill, of course."
+"Back up the hill, of course."
 
 Then I would be taken further towards the city. At last! An end, finally, to tramping along on my own, or swinging along on some slow cart. Now I would be travelling fast enough to reach the city before night - and I would find my papers and the island would soon be just a strange memory.
 
@@ -458,6 +466,10 @@ I would be glad to have them rid of me. I simply couldn't survive in such a plac
 
 I was so absorbed in myself I almost missed the place I was looking for: on the large windows of the block I was walking past was the post-horn logo, with 'PTT' in large orange letters beneath in. In fact, the entire thing was so large it reached from the ground up to the second storey - but faced flat onto the pavement. It seemed very odd to have a mark so prominent and yet seemingly so easy to miss, especially for a visitor.
 
-14850
+I tried for a doorway, but found none. No panel swung back, neither was there any window I might push open. If this was a public building, how on earth was I to get in? As the crowds push around me, I put up my hand to shield my eyes and get some look at the inside. It too some time for me to get used to the dark interior: rows of people seemed to be waiting for their turn at a few booths, rather as one might expect at a remote train-station.
+
+This I supposed must be the main post-office, it being so very crowded and well-used. But where might I get in to it? I looked about on the street for some over-hanging sign, or anything that might signal an entrance. Nothing I could see would show any way in. I was not going to give up, since there must be some answer, though I did start to become irritated and - at length - exasperated at how simple a task seemed either to be made complicated, or perhaps I had grown somehow stupid.
+
+15400
 
 
