@@ -110,6 +110,8 @@ I stood in the entrance, lost between the outside and in. Outside, there was no 
 
 I hardly knew that we had passed through a doorway, but we clearly had. The figure sat at some sort of bench, or window-seat. The floor was covered with a sort of matting, from the doorway right up to the edges of the room. By the figure, a recess into the ground showed a pot, or brazier, low under which a pile of embers glowed.
 
+Looking in, I saw that the floor opened up towards the sandy ground below the planking: almost as though we were in an outside courtyard looking down. The whole place seemed built around the brazier, as though that was the fixed point around which everything had come to be. Small heavy metal tools lay by it, though I could not tell what they were. 
+
 The first communication the figure made was to motion me to sit. I put myself at the other end of the bench. Between us, the bench grew wider, rather like a tray. There rested two jars, very roughly made. The figure passed a hand over them, mentioning me to drink. It was warm, a sort of tea, but not tea. When I put it down, I saw there were several discs, like oat-cakes, but thicker. They were made of some compacted, greenish stuff.
 
 Although I should have been exhausted, hungry, I found myself eating one as though only sampling some offered delicacy, for the sake of politeness. There was a fruit, cut in pieces that might be eaten all at once. It was pink, translucent, like a white peach or a lychee. It had a smell that was something other than floral; sweet, but almost like wood.
@@ -126,17 +128,19 @@ But, thinking on it, I couldn't think of a thing that would have made me think t
 
 This was undoubtedly the first voice I had heard since the woman had spoken on the boat. And then it wasn't even to me, but to the man in my hearing. I couldn't even see them, since they passed beyond the end of the deck-side I worked. As the woman's voice was like mine, so the figure's voice was like hers. It was almost as if I had spoken the words myself, so alike to me they sounded. 
 
+I noticed the hand - thin, long fingers. The ends stained a little, yellow. The skin was cracked, not from age but from exposure to the elements, or to work.
+
 Then, for the first time, I wondered if the figure was a man, or a woman. It had never seemed ... now I had some doubt, or question, as though if I had guessed incorrectly I could trust no more about him - or her. The figure was clearly stronger than I was - and taller. But this now didn't mean it was a man. Neither did the voice mean it was a woman. I answered in a voice surprisingly even in tone.
 
 "I don't want to go anywhere."
 
 There was a clear moment of silence. I couldn't think what to say. There didn't seem to be anything I should say. Or course I wasn't from there. In fact, I didn't even know where I was. Should I tell who I was and how I had come to be there? That seemed unnecessary. Only that we were weeks away from the port - and I was on, presumably, an island small enough to to have been a stop on our way. The island was supposed to be unvisited. Wherever I was, I wasn't supposed to be.
 
-We seemed to sit for some time. How long, I could not tell, though it must have been quite a time in all, since a light had started to come in at the deep windows. I began to look about.
+We seemed to sit for some time. How long, I could not tell, though it must have been quite a time in all, since a light had started to come in at the deep windows. I began to look about. In the corner of the room was a large vase, coloured white and light blue, very faded. It was covered with a craze of cracks. By it, almost under it, was a small metal bell, cast in dark metal and with an imperfection running through it.
 
 As far as I could see, there was little else in the room. No other furniture, no storage-places, only a short dividing partition that could be folded and taken down. I could not see what was behind it. The only light came in where the windows should have been, but there was no glass, only open shutters. The corners of the room were dim, the light falling in patches at my feet.
 
-The figure sat. I wondered if it would speak again. I thought I should only speak in answer to it. The strange sounds of the room made me feel as though I was outside, even though there was a low roof above me. It felt as though we were only in a slightly ordered version of the natural world. 
+The figure sat. I wondered if it would speak again. I thought I should only speak in answer to it. The strange sounds of the room made me feel as though I was outside, even though there was a low roof above me. There was a constant low sound of water, flowing past, but not the sea. I couldn't see anything that might be the source. It felt as though we were only in a slightly ordered version of the natural world. 
 
 At last, after some time sitting, I stood. The figure stayed. Was I supposed to do something, or go somewhere? I felt no urge to leave, but wondered again where I might properly be. Wasn't there something I wanted? I looked towards the entranceway and found the figure standing outside, on the path. For a time I thought I might simply stay there. The figure eventually might offer me instruction. It seemed right to trust it.
 
@@ -470,6 +474,24 @@ I tried for a doorway, but found none. No panel swung back, neither was there an
 
 This I supposed must be the main post-office, it being so very crowded and well-used. But where might I get in to it? I looked about on the street for some over-hanging sign, or anything that might signal an entrance. Nothing I could see would show any way in. I was not going to give up, since there must be some answer, though I did start to become irritated and - at length - exasperated at how simple a task seemed either to be made complicated, or perhaps I had grown somehow stupid.
 
-15400
+I stood watching others pass - and decided that I should wait until someone else made their way in. If the post-office was so full, many people must be going in and out - somewhere. I did not have long to wait until two men came up, glanced at the window and then took a sudden turn to vanish.
+
+It took me a moment to work out what had happened: there was a small alleyway between the blocks that I simply hadn't noticed at all. It was very dim, with fluorescent lamps in a thin line above it. I saw the two turn again into the post-office. I followed them, surprised that such a place had such a small and unwelcoming entrance. 
+
+There was no door to pass through: the alleyway ended suddenly and opened into the ground floor of the post-office. The floor was of large marble squares, rubbed and scarred from use. The high ceiling held four chandeliers, none of which were used. Strip lighting had been installed later, it seemed, under a layer of cladding.
+
+Around the walls hung posters, most of which were torn and faded. The only ones to look new were a couple of large lists, possibly prices for services, since many of the figures were crossed out and pencilled over.
+
+Dozens of people were milling about, some seemingly in queues, others not. It was difficult to see where I was supposed to go. I made my way towards a central desk, which I understood to be a sort of information point. I joined a queue, which moved slowly. After about a quarter hour I stood in front of a young man at the desk, who sat with a computer screen at his left-hand side, but without a keyboard.
+
+"You're to take this, fill in your details, take one of these, go to the registration office and then you can start."
+
+I looked on with a little surprise.
+
+"You've come for your papers, yes? You don't have any?"
+
+Quite how he knew I couldn't work out, but I supposed I was glad that I didn't have to explain myself. I took the assortment of pages, together with a thick pen, turned and made my way back to a row of chairs by the wall.
+
+15950
 
 
