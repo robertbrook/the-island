@@ -490,8 +490,20 @@ I looked on with a little surprise.
 
 "You've come for your papers, yes? You don't have any?"
 
-Quite how he knew I couldn't work out, but I supposed I was glad that I didn't have to explain myself. I took the assortment of pages, together with a thick pen, turned and made my way back to a row of chairs by the wall.
+Quite how he knew I couldn't work out, but I supposed I was glad that I didn't have to explain myself. I took the assortment of pages, together with a thick pen, turned and made my way back to a row of chairs by the wall. At last, I felt some little relief from my situation. I could fill in the forms, get my papers and go. These people didn't want me here. I wasn't one of them. I had no reason to be there. I didn't even want to be there.
 
-15950
+Perhaps, years ago, I might have wanted to visit the city when it was as it appeared on the old tourist map - but no-one would come here for that reason now. And it was so crowded! It was almost as though the people living in the city didn't know the rest of the island existed. And the other side of the island may as well have been another country entirely - or even another time.
+
+Did they even know about those people here in the city? Certainly they seemed very different, in almost every way. Even physically: the people I had met first were a great assortment of types - whereas here in the city I was finding it difficult to tell each one apart from another. In the villages I felt like one of them, but here in the city i began to feel rather conspicuous. But what was I worried about? I had started to feel as though I should be hiding, ever since I had been on the carrier. But who was I hiding from? Was I trying to escape? Who was coming after me?
+
+I looked down at the sheaf of forms I had been given. At least I should start on these and make the best of it. I had got this far, after all. But, the more I looked through them, the more worried I got. Many of the pages I couldn't understand at all. Some seemed blank. Some referred to things that seemed quite unconnected to me. Others asked for information I couldn't possibly have - still more demanded strangely intimate details that I thought I wouldn't like to give. One seemed to be a sort of check-list one might fill in before surgery.
+
+Had I been given the wrong forms? I must have been. I tried again to concentrate on the first few pages. Even these seemed quite insurmountable. I sat back and felt tears of frustration and exhaustion. I closed my eyes and tried to think. I had made it all across the island: at first with their help and now despite their resistance to me. I couldn't give up after so much effort.
+
+And what would giving up mean? After all, I had survived by my wits since crossing the yellow ditch. Which one of these had helped me after that? I could survive on my own here. I would show them. I didn't need to fill in their forms and run away. I could make my won way on the world without depending on them.
+
+With one last glance down at the papers, I realised that I could never have filled them all in, even if I have wanted to. I stood up, shaking pages from my lap onto the marble floor around me. I had to get out. I had to go on by my own, under my own efforts. I couldn't depend on any help from any of them. In fact, I should remember now that they could only harm me.
+
+16500
 
 
