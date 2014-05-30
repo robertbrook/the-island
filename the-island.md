@@ -504,6 +504,22 @@ And what would giving up mean? After all, I had survived by my wits since crossi
 
 With one last glance down at the papers, I realised that I could never have filled them all in, even if I have wanted to. I stood up, shaking pages from my lap onto the marble floor around me. I had to get out. I had to go on by my own, under my own efforts. I couldn't depend on any help from any of them. In fact, I should remember now that they could only harm me.
 
-16500
+I fell towards the way I had come in and forced my way between the constant flow of people coming the other way. Coming out of the little alley-way was even more difficult than getting in. No-one but me seemed to want to do anything but come into the post-office. Those pushing against me got more and more obstructive, eventually aggressive. By the time I had come out onto the street again, I was exhausted.
+
+It had begun to get dark. Not the dark of night, but lowering clouds. Oily street-lamps came on, shimmering in a sickly orange. A great rumble of thunder sounded: no-one looked up, or seemed to notice, or seemed to alter anything they were doing - even when the rain started. It came down in freezing sheets.
+
+I looked up and down the street, trying to work out how I might cross the filled-in square and - if I could - make my way to the port, or harbour, or whatever was there. There was something, where the edge of the city met the sea. I fell forward into the crowd, blundering towards ... some way out, perhaps? Away, certainly, from the city.
+
+Those I passed grew increasingly angry at me. I felt more conspicuous than ever, trying my best to pull my cap down and hide myself from them. A couple jeered at me. One spat and shouted out ... quite what, I couldn't say.
+
+I felt I must cross the road, despite the traffic. It moved so slowly, I thought I might manage to squeeze between the carriers, lorries and bicycles. There were three, or perhaps four lanes on the road, but the traffic seemed to ignore the divisions entirely. There were no markings on the road, no traffic-lights, no signs. By the time I reached the other side of the road, I was bruised and slightly frightened.
+
+Whatever happened, I must get away from the road. Here in the middle of what used to be the square, the buildings were even more haphazardly built. Some seemed old and weathered, some newly built, some abandoned. Through the rain, I dashed through the ground floor of a building-site. The water washed over the flats of exposed concrete, the rusted spikes of iron looking like stumps of trees cut down. I felt that one mis-step would mean injury.
+
+The midst of what used to be the square looked like a flooded hulk. The backs of the buildings loomed over it, shadowing every pathway. There was an opening right in the middle, with what seemed to be a large round pond. As I reached it, I realised it was the remnants of what had once been a very substantial fountain. The rain fell straight down. 
+
+The fountain itself was filled, half-filled, with a near-fluorescent yellow liquid - presumably water, but horribly coloured. It stank, heavily, of a sort of acid. The falling rain seemed not to dilute it at all. Whatever the fountain had sprung from was completely unrecognisable - a sort of half-broken column.
+
+17050
 
 
