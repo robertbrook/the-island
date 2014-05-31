@@ -364,7 +364,7 @@ Quickly I felt entirely ashamed - and thought of how I had been on the boat and 
 
 Of course, those after I had crossed the yellow ditch weren't quite so welcoming, but they were soldiers and had their jobs to do. The workers in the forest taking down the trees had left their clothes and food and I had stolen them. I had stolen them - perhaps the first time I had ever stolen without thinking it was plainly wrong to do so.
 
-Would I have starved, if I had not taken that food? Should I not simply have asked for something to eat, or for some clothes? Thinking of it horrified me. Something in me had changed. I could not blame the islanders, so it must have been in me all along. 
+Would I have starved, if I had not taken that food? Should I not simply have asked for something to eat, or for some clothes? Thinking of it horrified me. Something in me had changed. I could not blame the islanders, so it must have been in me all along. I felt suddenly quite ashamed.
 
 I stood for a while, still in the middle of the road. I thought back to how I was on the boat, how I was before I left. I never would have taken something like that - stolen something. I should go back, give back what I had taken. But, they would ... what would they do? There were the soldiers, back there. And, after all, I had to keep myself warm and alive. What else could I have done?
 
@@ -372,7 +372,7 @@ As soon as I had started to walk again, I heard an engine on the road ahead. I c
 
 "You're late. You should have been with the others. What are you doing out here?"
 
-He must think I was one of the workers, dressed as I was. I was about to say I wasn't one of them, when I realised that he might well turn me in.
+He must think I was one of the workers, dressed as I was. I was about to say I wasn't one of them, when I realised that he might well turn me in. I decided to go on.
 
 "Which way?"
 
@@ -384,7 +384,7 @@ The engine of the thing idled as I clambered in through a thick canvas, opened a
 
 The driver spent some time wrenching through the gears before the engine took a grinding note and we set off - at first quite slowly, then picking up speed. I put myself down where I could on the metal flooring and took a look about. The carrier was clearly used for workers and their machinery. There were oil-stains and marks of chemicals all over, with the metal dented heavily in several places.
 
-Right at the back was the un-mistakable smell of the yellow ditch, with a small amount of that bright-yellow liquid running in the grooves of the metal flooring. I decided to sit as close to the heavy canvas hanging at the back of the carrier as I could, so as to be as far from the smell as I might get.
+Right at the back was the un-mistakable smell of the yellow ditch, with a small amount of that bright-yellow liquid running in the grooves of the metal flooring. I decided to sit as close to the heavy canvas hanging at the back of the carrier as I could, so as to be as far from the smell as I might get. It was the odour of a strong acid, or bleach, quite unlike any natural thing.
 
 From my perch at the back, I saw the forest thinning rapidly away, with clearings multiplying and joining together. At first, there was one or two groups of workers tending their machines. Then, as the afternoon wore on, I passed what looked like small settlements: groups of workers, possible put out here to clear the land for other uses. 
 
@@ -406,7 +406,7 @@ With the lorry-park behind me, I was back on the road. Here it had broken into a
 
 Perhaps they didn't import much in the way of clothes. Or perhaps it was some sort of national dress. Or one of those styles where it's best to look like you're unconcerned about your appearance. In any case, it gave then all a similar look: people, worker and soldiers all seemed of one lot. I couldn't tell any of them apart. Suddenly I felt that I might well start to stand out here, that I might become different and noticeable, when i had very much wanted just to be invisible.
 
-I walked on - and a sort of pavement emerged from the road-side. Where a gutter and kerb should have been, there was a shallow channel. This was the only mark between those walking and the bicycles and carriers passing by.
+I walked on - and a sort of pavement emerged from the road-side. Where a gutter and kerb should have been, there was a shallow channel. This was the only mark between those walking and the bicycles and carriers passing by. How could they tell if they were in the road or not?
 
 The traffic both on the road and the pavement increased. The only motors passing seemed to be working: the carriers, some empty but most with workers or soldiers in them; a couple of larger things that moved more slowly and had three soldiers clung to the side by a large turret; many more bicycles.
 
@@ -520,6 +520,22 @@ The midst of what used to be the square looked like a flooded hulk. The backs of
 
 The fountain itself was filled, half-filled, with a near-fluorescent yellow liquid - presumably water, but horribly coloured. It stank, heavily, of a sort of acid. The falling rain seemed not to dilute it at all. Whatever the fountain had sprung from was completely unrecognisable - a sort of half-broken column.
 
-17050
+I broke into a stumbling run, splashing through puddles tainted with the yellow liquid. The alleys opened up slightly, only to fill with people. I saw a man turn to watch me as I passed: when I came near to him, he swung a cloak over something in front of him to hide it from me.
 
+The alley-way I came down turned into a sort of tunnel, into a funnel which roared with sound, which ended in a little open doorway that spat me out into the roadway on the opposite side of the filled-in square.
 
+But instead of the expected traffic there was - the sea. The road in front of me was cut straight down the middle into the edge of a cliff. The sea was eroding the land straight into the middle of the square: the other side full of people and traffic, this side slowly falling into the waves.
+
+I could already see down, right down to the water below. It didn't look like a shore, but the straight descent of a cliff-edge to the open sea. The underneath of the clouds glowed darkening orange. The surface of the sea was a sort of brown. The rain fell heavily and the waves looked like boiling water.
+
+I stood with one leg forward, one back - one towards what I thought was escape, one still in the place I wanted to escape from. I couldn't turn back. There was nothing to return to. Those people didn't want me, wouldn't help me.
+
+I tried to stand, but the roadway had tilted up under my feet and I fell back towards the alley-way. Pulling myself up again, the whole world seemed mis-shapen. The sea screamed. I stepped out toward where the other part of the road should have been. 
+
+The surface of the road sloped away. I felt a sudden rise of nausea. I was on the edge of the island, completely alone. The road slipped and twisted away, at once rearing up and again falling sharply down towards the sea. I tried to keep my footing and moved as carefully as I could back towards the alley-way entrance.
+
+The road fell away, soundlessly. There was no moon, no stars to show which was the sky and which the sea. Everything became in a moment still. Stars, sea, the air, the dark - stopped, with me suspended in it. Hung, my legs put up where they should have touched the road and arms outstretched to the sea below.
+
+The island stood silently, pitched up, stuck in the sudden sea. Everything seemed immediate and close. I could see the sides of the buildings, up-ended ...
+
+Slowly, the air moved about me. Slowly, I looked up to see the waves falling down on me. I felt, for the first time since I had left the city, as myself. I felt at ease. I felt entirely relaxed - even happy. I was certain that this was an end, to something.
